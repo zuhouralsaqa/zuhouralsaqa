@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @zuhouralsaqa
+- 🌱 I’m currently studieng mechatronics engineering
+- 📫 you can reach me through my email or linkedin account
