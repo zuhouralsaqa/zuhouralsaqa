@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @zuhouralsaqa
-- 🌱 I’m currently studieng mechatronics engineering
+- 🌱 I’m currently a mechatronics engineer
 - 📫 you can reach me through my email or linkedin account
